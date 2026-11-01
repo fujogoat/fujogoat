@@ -3,7 +3,7 @@ don't like me? hide button will be your saviour
 
 <p align="center">
 
-[rentry](https://rentry.co/fortunesleep)  │  [matching](https://rentry.co/genshitsu)  │  [listography](https://listography.com/meloshie)  │ [ata](https://kiryunishi.atabook.org)
+[rentry](https://rentry.co/kiryunishi)  │  [matching](https://rentry.co/genshitsu)  │  [listography](https://listography.com/meloshie)  │ [ata](https://kiryunishi.atabook.org)
 
 
 
