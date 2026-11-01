@@ -3,11 +3,11 @@ don't like me? hide button will be your saviour
 
 <p align="center">
 
-[rentry](https://rentry.co/fortunesleep)  │  [matching](https://rentry.co/genshitsu)  │  [listography](https://listography.com/meloshie)  │ [revospring](https://revospring.net/@ocelhira)
+[rentry](https://rentry.co/fortunesleep)  │  [matching](https://rentry.co/genshitsu)  │  [listography](https://listography.com/meloshie)  │ [ata](https://kiryunishi.atabook.org)
 
 
 
-  R.I.P 3RD ATABOOK YOU WILL BE BACK SOON 🕊️🕊️
+
 <p align="center">
 
 
