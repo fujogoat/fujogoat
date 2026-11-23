@@ -1,5 +1,5 @@
 limit interactions if -16 thanks.
-im anti harassment so if u dont like that just block me
+im anti harassment so if that bothers u just block me
 
 <p align="center">
 
