@@ -1,5 +1,5 @@
 limit interactions if -16 thanks.
-don't like me? hide button will be your saviour 
+im anti harassment so if u dont like that just block me
 
 <p align="center">
 
